@@ -3,6 +3,7 @@
  Grace . <br>
  he/they/it<br>
  antihara - anticensorship<br>
+ keep us out of shipping wars or you will be blocked, i ain't got time for that shit<br>
  dni: is i block very freely.<br>
  fandoms: dbh , supernatural, resident evil, Hannibal, scream, phm, tadc, FNAF + more  <br>
  <br>
