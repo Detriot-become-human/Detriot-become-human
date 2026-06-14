@@ -6,4 +6,7 @@
  dni: is i block very freely.<br>
  fandoms: dbh , supernatural, resident evil, Hannibal, scream, phm, tadc, FNAF + more  <br>
  <br>
- I'm wanting to stay anonymous and so does my partner DO NOT seek out our other socials. even if we are friends pls. if you have our other socials don't mentioned it.  <br>
+ I'm wanting to stay anonymous and so does my partner DO NOT seek out our other socials. even if we are friends pls. if you have our other socials don't mentioned it. 
+ <br>
+ <br>
+<img width="628" height="407" alt="Image" src="https://github.com/user-attachments/assets/33e03891-157a-4025-b563-6fff234eee58" />
